@@ -8,3 +8,4 @@
 Occupiedmarkus/Occupiedmarkus is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 You can click the Preview link to take a look at your changes.
 --->
+![Mu](https://user-images.githubusercontent.com/100002192/158086691-2e9e9484-f65b-4f34-9089-5f895f21ac13.gif)
