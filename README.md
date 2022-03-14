@@ -10,7 +10,19 @@ You can click the Preview link to take a look at your changes.
 --->
 ![Mu](https://user-images.githubusercontent.com/100002192/158086691-2e9e9484-f65b-4f34-9089-5f895f21ac13.gif)
 
+ː12luckybellː[b]Lets Work Towards [spoiler]Oasis![/spoiler][/b]ːstella_happyː
+ːBlackSquadBulletːːBlackSquadBulletːːBlackSquadBulletːːBlackSquadBulletːːBlackSquadBulletːːBlackSquadBulletːːBlackSquadBulletːːBlackSquadBulletːːBlackSquadBulletːːBlackSquadBulletːːBlackSquadBulletːːBlackSquadBulletːːBlackSquadBulletːːBlackSquadBulletːːBlackSquadBulletːːBlackSquadBulletːːBlackSquadBulletːːsentryː
+Check out my links below
 
+──────▄▀▄─────▄▀▄
+─────▄█░░▀▀▀▀▀░░█▄
+─▄▄──█░░░░░░░░░░░█──▄▄
+█▄▄█─█░ːTheDː░░┬░░ːTheDː░█─█▄▄█
+ [. | .] >3
+[i][url=https://twitter.com/t_strikefree9]Twitter[/url][/i]
+[i][url=https://www.artstation.com/strikefree9] ArtStation [/url][/i]
+[i]Divoom Profile: Gnast[/i]
+ 
 The MIT License (MIT)
 
 Copyright (c) 2022
