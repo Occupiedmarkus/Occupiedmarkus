@@ -15,8 +15,6 @@ Check out my links below:
 
 
 
-https://twitter.com/t_strikefree9]Twitter
-
 https://www.artstation.com/strikefree9
 
 
