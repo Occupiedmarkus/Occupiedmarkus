@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @Occupiedmarkus
 - 👀 I’m interested in game dev/software dev
-- 🌱 I’m currently learning C++
+- 🌱 I’m currently learning everything as much as possible!
 - 💞️ I’m looking to collaborate on entry to intermediate level projects; I am done being HANDS solo
 - 📫 You can reach me on occupiedmarkus@gmail.com
 
